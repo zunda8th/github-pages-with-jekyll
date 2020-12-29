@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Ayaya09's blog
 
-I'm glad you are here. I plan to talk about ...
+麻雀はクソゲー
